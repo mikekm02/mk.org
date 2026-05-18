@@ -13,7 +13,7 @@ Anti-inflamatory<br>
 *garlic thyme<br>
 *2x3 tabs with meal<br>
 *Natural antibiotic,<br>
-*strenghtens immune system<br><br>
+*strenghtens immune system<br>
 *Aloe vera gel<br>
 *or berry nectar<br><br>
 *3-6 ounces daily,<br>
