@@ -1,5 +1,7 @@
 
 *FOREVER LIVING PRODUCTS.<br><br>
+<img src="/images/image-codes/milford_sound_t.jpg" width="225" height="151" alt="Photo of Milford Sound in New Zealand"/>
+
 *Bleeding Gum<br>
 *Tooth gel<br>
 *Use often<br>
